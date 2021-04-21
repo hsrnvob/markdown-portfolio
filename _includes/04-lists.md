@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. make a list
+2. finish thing
+3. k
